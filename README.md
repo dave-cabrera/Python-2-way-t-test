@@ -17,7 +17,7 @@
 
 
 
-Refefences
+References
 
 Statistics. (n.d.). Retrieved April 23, 2020, from https://www.cliffsnotes.com/study-
 
